@@ -51,7 +51,6 @@ With a background in pharmacy and a Master's in Business Administration focused 
 
 ---
 
-Feel free to reach out if you’d like to collaborate or discuss data analysis, category management, or CRM strategies!
 
 
 <!--
